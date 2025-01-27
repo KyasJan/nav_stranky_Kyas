@@ -1,0 +1,1 @@
+# nav_stranky_Kyas
